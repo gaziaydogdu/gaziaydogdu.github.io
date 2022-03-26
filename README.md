@@ -1,2 +1,0 @@
-# gaziaydogdu.github.io
-aciklama
